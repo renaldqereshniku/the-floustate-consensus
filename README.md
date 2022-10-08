@@ -14,3 +14,43 @@ _ Energy to the power of art
 _ A sculpture is a measure of gravity
 _ Sound needs a vessel
 _ Void
+
+#Choice
+
+Don't say no
+Alternative methodologies
+
+#Convolution and divergence theories
+
+Paradox
+Limits of infinity
+
+#Start with the end
+
+Intention
+Reverse engineering
+Money
+
+#Volts magnify visual receptors
+
+Electric waves
+
+#Energy to the power of art
+
+The unifying field is light
+Sound is an experience
+Partical distance
+In between the lines
+
+#A sculpture is a measure of gravity
+
+Shifting focus
+Equilibrium
+
+#Sound needs a vessel
+
+Rotation directon
+
+#Void
+
+Initiation
