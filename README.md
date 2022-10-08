@@ -17,7 +17,6 @@ _ Void
 
 #Choice
 
-Don't say no
 Alternative methodologies
 
 #Convolution and divergence theories
