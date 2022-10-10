@@ -18,6 +18,7 @@ _ Void
 # Choice
 
 Alternative methodologies
+  The unifying field is light. Sound is an experience. Your story is your power
 
 # Convolution and divergence theories
 
