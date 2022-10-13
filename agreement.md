@@ -1,56 +1,17 @@
 # theFloustateConsensus
 Guide book
 
-MEDIA FREEDOM CODE
+MEDIA FREEDOM CODE<br>
 A Social Science Experiment
 
 # Command line algorithms
 
-_ Choice
-_ Convolution and divergence theories
-_ Start with the end
-_ Volts magnify visual receptors
-_ Energy to the power of art
-_ A sculpture is a measure of gravity
-_ Sound needs a vessel
-_ Void
+Choice<br>
+Convolution and divergence theories<br>
+Start with the end<br>
+Volts magnify visual receptors<br>
+Energy to the power of art<br>
+A sculpture is a measure of gravity<br>
+Sound needs a vessel<br>
+Void<br>
 
-# Choice
-
-Alternative methodologies
-  The unifying field is light. Sound is an experience. Your story is your power
-
-# Convolution and divergence theories
-
-Paradox
-Limits of infinity
-
-# Start with the end
-
-Intention
-Reverse engineering
-Money
-
-# Volts magnify visual receptors
-
-Electric waves
-
-# Energy to the power of art
-
-The unifying field is light
-Sound is an experience
-Partical distance
-In between the lines
-
-# A sculpture is a measure of gravity
-
-Shifting focus
-Equilibrium
-
-# Sound needs a vessel
-
-Rotation directon
-
-# Void
-
-Initiation
