@@ -1,5 +1,4 @@
 # theFloustateConsensus
-Guide book
 
 MEDIA FREEDOM CODE<br>
 A Social Science Experiment
