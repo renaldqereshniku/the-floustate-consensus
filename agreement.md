@@ -1,9 +1,5 @@
 # theFloustateConsensus
 
-MEDIA FREEDOM CODE<br>
-A Social Science Experiment
-
-# Command line algorithms
 
 Choice<br>
 Convolution and divergence theories<br>
