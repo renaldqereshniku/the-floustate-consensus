@@ -3,7 +3,8 @@
 
 The unifying field is light. Time is a variable. Sound is an experience. Distance is relative. Direction is intention. Your story is your power. Equilibrium is inwards.
 
-
+CHAPTERS
+<br><br>
 Choice<br>
 Convolution and divergence theories<br>
 Start with the end<br>
